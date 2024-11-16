@@ -17,7 +17,7 @@
 - Technical writing or content creation for tech-related blogs.
 
 ### 📫 How to reach me:
-- 📧 Email: **raniabellili2020@example.com**  
+- 📧 Email: **raniabellili2020@gmail.com**  
 - 💼 LinkedIn: [Rania Bellili](https://www.linkedin.com/in/rania-bellili-29b7b6269/)
 
 
