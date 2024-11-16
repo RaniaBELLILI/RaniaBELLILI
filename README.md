@@ -18,7 +18,7 @@
 
 ### 📫 How to reach me:
 - 📧 Email: **raniabellili2020@example.com**  
-- 💼 LinkedIn: [Rania Bellili](www.linkedin.com/in/rania-bellili-29b7b6269)
+- 💼 LinkedIn: [Rania Bellili](https://www.linkedin.com/in/rania-bellili-29b7b6269/)
 
 
 ### ⚡ Fun Fact:
